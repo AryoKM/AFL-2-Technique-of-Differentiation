@@ -1,2 +1,4 @@
 # AFL-2-Technique-of-Differentiation
-pending
+169 iq move from pasien tipes
+
+tanggal kumpul: 9 Juni 2024 (23:39)
